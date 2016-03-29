@@ -3,7 +3,7 @@ Part of this conversation: https://twitter.com/jmmastey/status/71450872763899904
 This list is a little Chicago-centric, but almost everything has an analogue elsewhere. For instance, if you're in New Zealand you can go on a _bush walk_ while we have to settle for a hike.
 
 ### Thanks To
-Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adib, Ashton Thomas, Matt Campbell, Dave Mastey, Barrett Clark, Tute Costa, Dominik Wilkowski, GA like the state, Angie Meeker, Eric Normand, Isaac Sanders, Michael Robinson, North of Normal, Rachael Hodder, Aparna Pandey, Jenni Hartman, Colleen Stock, Jung Ha Lim, Jennifer Um, Franka, Josh Liebowitz, Sarah Allen, Dominic Baggott, Melinda Minch, Dave Mayo, Andy Carle, Matt Kremer, Ariel Caplan, Emily P, Jeff Madsen, Dave Bock, Jason Staten, Jason Hobbs, Julie Lee, mathrobin, Ron Burk, Seth Roby, Mike Nolan, John Allsopp, Kylie Gusset, Tim Lucas, Adam Argo, Kenn Brodhagen, Lain Mastey, Lisa Szkatulski, Yitz Schaffer, Matt Gehrisch
+Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adib, Ashton Thomas, Matt Campbell, Dave Mastey, Barrett Clark, Tute Costa, Dominik Wilkowski, GA like the state, Angie Meeker, Eric Normand, Isaac Sanders, Michael Robinson, North of Normal, Rachael Hodder, Aparna Pandey, Jenni Hartman, Colleen Stock, Jung Ha Lim, Jennifer Um, Franka, Josh Liebowitz, Sarah Allen, Dominic Baggott, Melinda Minch, Dave Mayo, Andy Carle, Matt Kremer, Ariel Caplan, Emily P, Jeff Madsen, Dave Bock, Jason Staten, Jason Hobbs, Julie Lee, mathrobin, Ron Burk, Seth Roby, Mike Nolan, John Allsopp, Kylie Gusset, Tim Lucas, Adam Argo, Kenn Brodhagen, Lain Mastey, Lisa Szkatulski, Yitz Schaffer, Matt Gehrisch, Cheryl Gore Schaefer, rach, Aaron Gunderson, Neil P. Bardhan, John McClane, Jody Podbury, Duana Saskia Stanley, Forrest Alvarez, jtu, bgregmc.
 
 ### Strategy
 1. Poll the group in advance and allow them to raise concerns.
@@ -24,9 +24,12 @@ Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adib, Ashton T
 * Book Club
 * Bowling
 * Boxing
+* Bubble Soccer
+* Cat Cafe
 * CSO Concert at Millenium Park
 * Chicago Architecture Tour
 * Chicago Athletic Club Game Room (Bacci Ball, Pool, etc)
+* Chicago Urban Race (Amazing Race)
 * Chili cook-off
 * Coffee / Tea Tasting
 * Comedy Club
