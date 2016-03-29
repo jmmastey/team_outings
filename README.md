@@ -13,6 +13,7 @@ Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adib, Ashton T
 5. Keep trying new things!
 
 ### The List
+* 3D Printing Hackathon
 * Apple Picking
 * Aquarium
 * Archery Tag (no seriously, it's like the Hunger Games)
@@ -48,11 +49,11 @@ Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adib, Ashton T
 * Hiking
 * Improv Class
 * Indoor Skydiving
-* Instructibles
+* Instructables
 * Kayaking / Paddleboarding
 * League of Legends
 * Lunch in the Park
-* Learn to Play Ukelele Together
+* Learn to Play Ukulele Together
 * Mini-golf (or a Mini-golf tournament!)
 * Mob Tour / Ghost Tour
 * Movie Opening
