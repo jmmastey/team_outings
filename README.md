@@ -3,10 +3,14 @@ Part of this conversation: https://twitter.com/jmmastey/status/71450872763899904
 This list is a little Chicago-centric, but almost everything has an analogue elsewhere. If you're in New Zealand, I'm told you can go on a "bush walk".
 
 ### Thanks To
-Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adib, Ashton Thomas, Matt Campbell, Dave Mastey, Barrett Clark, Tute Costa, Dominik Wilkowski, GA like the state, Angie Meeker, Eric Normand, Isaac Sanders, Michael Robinson, North of Normal, Rachael Hodder, Aparna Pandey, Jenni Hartman, Colleen Stock, Jung Ha Lim, Jennifer Um, Franka, Josh Liebowitz, Sarah Allen, Dominic Baggott, Melinda Minch, Dave Mayo, Andy Carle, Matt Kremer, Ariel Caplan, Emily P, Jeff Madsen, Dave Bock, Jason Staten, Jason Hobbs, Julie Lee, mathrobin, Ron Burk, Seth Roby, Mike Nolan, John Allsopp, Kylie Gusset, Tim Lucas, Adam Argo, Kenn Brodhagen, Lain Mastey, Lisa Szkatulski
+Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adib, Ashton Thomas, Matt Campbell, Dave Mastey, Barrett Clark, Tute Costa, Dominik Wilkowski, GA like the state, Angie Meeker, Eric Normand, Isaac Sanders, Michael Robinson, North of Normal, Rachael Hodder, Aparna Pandey, Jenni Hartman, Colleen Stock, Jung Ha Lim, Jennifer Um, Franka, Josh Liebowitz, Sarah Allen, Dominic Baggott, Melinda Minch, Dave Mayo, Andy Carle, Matt Kremer, Ariel Caplan, Emily P, Jeff Madsen, Dave Bock, Jason Staten, Jason Hobbs, Julie Lee, mathrobin, Ron Burk, Seth Roby, Mike Nolan, John Allsopp, Kylie Gusset, Tim Lucas, Adam Argo, Kenn Brodhagen, Lain Mastey, Lisa Szkatulski, Yitz Schaffer, Matt Gehrisch
 
 ### Strategy
-Poll the group in advance and allow them to raise concerns, give plenty of options. Some options may not work if you have team members with accessibility needs, or particular concerns. That's _okay_. And keep trying new things!
+1. Poll the group in advance and allow them to raise concerns.
+2. Give plenty of options.
+3. Do daytime things so family folks can join.
+4. Some options may not work if you have team members with accessibility needs, or particular concerns. That's _okay_.
+5. Keep trying new things!
 
 ### The List
 * Apple Picking
@@ -54,7 +58,7 @@ Poll the group in advance and allow them to raise concerns, give plenty of optio
 * Mystery Theatre
 * Obstacle Course
 * Offsite Work Day (work from coffee shop as a group)
-* Other Learning Workshops (navigation, lockpicking, origami, etc)
+* Other Learning Workshops (navigation, lockpicking, origami, glassblowing, etc)
 * Paintball
 * Picnic / Potluck (daytime is easier to avoid booze)
 * Pilsen Walking Tour
