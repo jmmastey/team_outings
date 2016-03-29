@@ -1,6 +1,6 @@
 Part of this conversation: https://twitter.com/jmmastey/status/714508727638999040
 
-This list is a little Chicago-centric, but almost everything has an analogue elsewhere. If you're in New Zealand, I'm told you can go on a "bush walk".
+This list is a little Chicago-centric, but almost everything has an analogue elsewhere. For instance, if you're in New Zealand you can go on a _bush walk_ while we have to settle for a hike.
 
 ### Thanks To
 Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adib, Ashton Thomas, Matt Campbell, Dave Mastey, Barrett Clark, Tute Costa, Dominik Wilkowski, GA like the state, Angie Meeker, Eric Normand, Isaac Sanders, Michael Robinson, North of Normal, Rachael Hodder, Aparna Pandey, Jenni Hartman, Colleen Stock, Jung Ha Lim, Jennifer Um, Franka, Josh Liebowitz, Sarah Allen, Dominic Baggott, Melinda Minch, Dave Mayo, Andy Carle, Matt Kremer, Ariel Caplan, Emily P, Jeff Madsen, Dave Bock, Jason Staten, Jason Hobbs, Julie Lee, mathrobin, Ron Burk, Seth Roby, Mike Nolan, John Allsopp, Kylie Gusset, Tim Lucas, Adam Argo, Kenn Brodhagen, Lain Mastey, Lisa Szkatulski
