@@ -14,7 +14,6 @@ Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adib, Ashton T
 
 ### The List
 * 3D Printing Hackathon
-* 2nd Story
 * Apple Picking
 * Aquarium
 * Archery Tag (no seriously, it's like the Hunger Games)
@@ -84,6 +83,7 @@ Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adib, Ashton T
 * Segway Tour
 * Share Foods from Each Members' Culture
 * Sports Game (Baseball, Basketball, etc)
+* Storytelling (2nd Story, the Moth, etc)
 * Summer Dance
 * Team Cooking Class http://www.partiesthatcook.com/
 * Team Lunch (not Dinner)
