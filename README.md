@@ -14,6 +14,7 @@ Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adib, Ashton T
 
 ### The List
 * 3D Printing Hackathon
+* 2nd Story
 * Apple Picking
 * Aquarium
 * Archery Tag (no seriously, it's like the Hunger Games)
