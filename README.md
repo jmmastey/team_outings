@@ -71,6 +71,7 @@ Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adib, Ashton T
 * Paintball
 * Picnic / Potluck (daytime is easier to avoid booze)
 * Pilsen Walking Tour
+* Pokemon Go
 * Potluck
 * Pottery or painting class (without wine)
 * Retro Games (Mario Kart Party, anyone?)
