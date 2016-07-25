@@ -1,8 +1,8 @@
 Part of this conversation: https://twitter.com/jmmastey/status/714508727638999040
 
-This list is a little Chicago-centric, but almost everything has an analogue elsewhere. For instance, if you're in New Zealand you can go on a _bush walk_ while we have to settle for a hike.
+This list has some Chicago-centric references, but almost everything has an analogue in your city. For instance, if you're in New Zealand you can go on a _bush walk_, while we Midwesterners have to settle for a hike.
 
-### Thanks To
+### This List Only Possible Thanks To
 Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adib, Ashton Thomas, Matt Campbell, Dave Mastey, Barrett Clark, Tute Costa, Dominik Wilkowski, GA like the state, Angie Meeker, Eric Normand, Isaac Sanders, Michael Robinson, North of Normal, Rachael Hodder, Aparna Pandey, Jenni Hartman, Colleen Stock, Jung Ha Lim, Jennifer Um, Franka, Josh Liebowitz, Sarah Allen, Dominic Baggott, Melinda Minch, Dave Mayo, Andy Carle, Matt Kremer, Ariel Caplan, Emily P, Jeff Madsen, Dave Bock, Jason Staten, Jason Hobbs, Julie Lee, mathrobin, Ron Burk, Seth Roby, Mike Nolan, John Allsopp, Kylie Gusset, Tim Lucas, Adam Argo, Kenn Brodhagen, Lain Mastey, Lisa Szkatulski, Yitz Schaffer, Matt Gehrisch, Cheryl Gore Schaefer, rach, Aaron Gunderson, Neil P. Bardhan, John McClane, Jody Podbury, Duana Saskia Stanley, Forrest Alvarez, jtu, bgregmc, Denny Abraham, Lawrence Walters, Anjul, Maryam Labib, Kevin Cantù, antifuchs, Florian Gilcher, Julie David.
 
 ### Strategy
@@ -16,10 +16,10 @@ Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adib, Ashton T
 * 3D Printing Hackathon
 * Apple Picking
 * Aquarium
-* Archery Tag (no seriously, it's like the Hunger Games)
-* Arcade (Dave & Busters?)
+* Archery Tag (_"no seriously, it's like the Hunger Games"_)
+* Arcade (_"Dave & Busters? Emporium has lots of drinking."_)
 * BBQ
-* Backstage at the Opera (we called them directly)
+* Backstage at the Opera (_"we called them directly"_)
 * Beach Bonfire
 * Bike Tour of the City
 * Board Games / Social Card Games
@@ -29,71 +29,70 @@ Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adib, Ashton T
 * Boxing
 * Bubble Soccer
 * Cat Cafe
-* CSO Concert at Millenium Park
+* CSO Concert at Millenium Park (_summer only_)
 * Chicago Architecture Tour
 * Chicago Athletic Club Game Room (Bacci Ball, Pool, etc)
-* Chicago Urban Race (Amazing Race)
-* Chili cook-off
+* Chicago Urban Race / Amazing Race
+* Chili Cook-Off
 * Coffee / Tea Tasting
 * Comedy Club
-* Craft Day (make valentine's cards for veterans, for example)
+* Craft Day (_"make valentine's cards for veterans, for example"_)
 * Curling
 * Dabble Classes
-* Daybreakers (sober dance party)
+* Daybreakers / Sober Dance Party
 * Dinner Cruise
 * Disc Golf
-* Do a Bob Ross video / painting
+* Do a Bob Ross Video / Painting (_editor's note: favorite idea_)
 * Dodgeball
-* Field games (capture the flag, tug of war, three-legged race, etc)
-* Field trip to suburban destinations (i.e. The Farnsworth House, Bahai Temple, Palos Hills Preserve)
-* Food tastings (cheese, coffee, dessert, etc.)
+* Field Games (_"capture the flag, tug of war, three-legged race, etc"_)
+* Field Trip to Suburban Destinations (_"i.e. The Farnsworth House, Bahai Temple, Palos Hills Preserve"_)
+* Food Tastings (_"cheese, coffee, dessert, etc."_)
 * Go-Karts
-* Group Tech Talk Watching (hold an internal conference)
+* Group Tech Talk Watching (_"hold an internal conference"_)
 * Hackathon
 * Hiking
 * Improv Class
-* Indoor Skydiving
+* Indoor Skydiving (_"heck, outdoor skydiving"_)
 * Instructables
 * Kayaking / Paddleboarding
-* League of Legends
 * Lunch in the Park
 * Learn to Play Ukulele Together
-* Mini-golf (or a Mini-golf tournament!)
+* Mini-golf (_"or a Mini-golf tournament!"_)
 * Mob Tour Bus / Ghost Tour Bus
 * Movie Opening
-* Mural painting
-* Museum (Is there something at the MSI that is team-y?)
+* Mural Painting
+* Museum (_Is there something at the MSI that is team-y?_)
 * Mystery Theatre
-* Mystery League (puzzle solving adventure)
+* Mystery League / Puzzle Solving Adventure
 * Obstacle Course
-* Offsite Work Day (work from coffee shop as a group)
-* Other Learning Workshops (navigation, lockpicking, origami, glassblowing, etc)
+* Offsite Work Day / Work From a Coffee Shop as a Group
+* Other Learning Workshops (_"navigation, lockpicking, origami, glassblowing, etc"_)
 * Paintball
-* Picnic / Potluck (daytime is easier to avoid booze)
+* Picnic / Potluck (_"daytime is easier to avoid booze"_)
 * Pilsen Walking Tour
 * Pokemon Go
 * Potluck
-* Pottery or painting class (without wine)
-* Retro Games (Mario Kart Party, anyone?)
+* Pottery / Painting Class (_"without wine"_)
+* Retro Games (_"Mario Kart Party, anyone?"_)
 * Road Trip
 * Rock Climbing / Bouldering
 * Rollerskating
-* Room Escape (Trapped in a Room with a Zombie, which is apparently wheelchair accessible)
-* Running (Zombie Run, Chase Corporate Challenge, etc)
-* Scavenger Hunt (esp. a City History One)
+* Room Escape (_"Trapped in a Room with a Zombie, which is apparently wheelchair accessible"_)
+* Running (_"Zombie Run, Chase Corporate Challenge, etc"_)
+* Scavenger Hunt (_"especially a City History one"_)
 * Segway Tour
 * Share Foods from Each Members' Culture
-* Sports Game (Baseball, Basketball, etc)
-* Storytelling (2nd Story, the Moth, etc)
+* Sports Game (_"Baseball, Basketball, etc"_) (_ed: Maybe the Cubs will win this year?_)
+* Storytelling (_"2nd Story, the Moth, etc"_)
 * Summer Dance
-* Team Cooking Class http://www.partiesthatcook.com/
-* Team Lunch (not Dinner)
+* Team Cooking Class
+* Team Lunch, Instead of Dinner
 * Theatre
 * Ultimate Frisbee
 * Urban Gardening
-* Video Games?
-* Volunteering (with dogs? in nature? who cares)
+* Video Games (_"League of Legends!"_)
+* Volunteering (_"with dogs? in nature? who cares"_)
 * Walking Competition
 * Yoga
 * Zoo
-* Zorbing
+* Zorbing (_"google it"_)
