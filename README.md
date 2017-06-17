@@ -2,8 +2,8 @@ Part of this conversation: https://twitter.com/jmmastey/status/71450872763899904
 
 This list has some Chicago-centric references, but almost everything has an analogue in your city. For instance, if you're in New Zealand you can go on a _bush walk_, while we Midwesterners have to settle for a hike.
 
-### This List Only Possible Thanks To
-Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adib, Ashton Thomas, Matt Campbell, Dave Mastey, Barrett Clark, Tute Costa, Dominik Wilkowski, GA like the state, Angie Meeker, Eric Normand, Isaac Sanders, Michael Robinson, North of Normal, Rachael Hodder, Aparna Pandey, Jenni Hartman, Colleen Stock, Jung Ha Lim, Jennifer Um, Franka, Josh Liebowitz, Sarah Allen, Dominic Baggott, Melinda Minch, Dave Mayo, Andy Carle, Matt Kremer, Ariel Caplan, Emily P, Jeff Madsen, Dave Bock, Jason Staten, Jason Hobbs, Julie Lee, mathrobin, Ron Burk, Seth Roby, Mike Nolan, John Allsopp, Kylie Gusset, Tim Lucas, Adam Argo, Kenn Brodhagen, Lain Mastey, Lisa Szkatulski, Yitz Schaffer, Matt Gehrisch, Cheryl Gore Schaefer, rach, Aaron Gunderson, Neil P. Bardhan, John McClane, Jody Podbury, Duana Saskia Stanley, Forrest Alvarez, jtu, bgregmc, Denny Abraham, Lawrence Walters, Anjul, Maryam Labib, Kevin Cantù, antifuchs, Florian Gilcher, Julie David.
+### This List Possible Thanks To A Million Folks
+Thank you, Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adib, Ashton Thomas, Matt Campbell, Dave Mastey, Barrett Clark, Tute Costa, Dominik Wilkowski, GA like the state, Angie Meeker, Eric Normand, Isaac Sanders, Michael Robinson, North of Normal, Rachael Hodder, Aparna Pandey, Jenni Hartman, Colleen Stock, Jung Ha Lim, Jennifer Um, Franka, Josh Liebowitz, Sarah Allen, Dominic Baggott, Melinda Minch, Dave Mayo, Andy Carle, Matt Kremer, Ariel Caplan, Emily P, Jeff Madsen, Dave Bock, Jason Staten, Jason Hobbs, Julie Lee, mathrobin, Ron Burk, Seth Roby, Mike Nolan, John Allsopp, Kylie Gusset, Tim Lucas, Adam Argo, Kenn Brodhagen, Lain Mastey, Lisa Szkatulski, Yitz Schaffer, Matt Gehrisch, Cheryl Gore Schaefer, rach, Aaron Gunderson, Neil P. Bardhan, John McClane, Jody Podbury, Duana Saskia Stanley, Forrest Alvarez, jtu, bgregmc, Denny Abraham, Lawrence Walters, Anjul, Maryam Labib, Kevin Cantù, antifuchs, Florian Gilcher, Julie David, Rob Thomas, and Stephanie Hurlburt.
 
 ### Strategy
 1. Poll the group in advance and allow them to raise concerns.
@@ -18,6 +18,7 @@ Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adib, Ashton T
 * Aquarium
 * Archery Tag (_"no seriously, it's like the Hunger Games"_)
 * Arcade (_"Dave & Busters? Emporium has lots of drinking."_)
+* Bake Together (Cupcakes!)
 * BBQ
 * Backstage at the Opera (_"we called them directly"_)
 * Beach Bonfire
@@ -34,6 +35,7 @@ Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adib, Ashton T
 * Chicago Athletic Club Game Room (Bacci Ball, Pool, etc)
 * Chicago Urban Race / Amazing Race
 * Chili Cook-Off
+* Clean up a Public Park / Beach Together 
 * Coffee / Tea Tasting
 * Comedy Club
 * Craft Day (_"make valentine's cards for veterans, for example"_)
@@ -57,6 +59,7 @@ Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adib, Ashton T
 * Kayaking / Paddleboarding
 * Lunch in the Park
 * Learn to Play Ukulele Together
+* Manicures (_this is less gendered than you'd think_)
 * Mini-golf (_"or a Mini-golf tournament!"_)
 * Mob Tour Bus / Ghost Tour Bus
 * Movie Opening
@@ -67,6 +70,8 @@ Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adib, Ashton T
 * Obstacle Course
 * Offsite Work Day / Work From a Coffee Shop as a Group
 * Other Learning Workshops (_"navigation, lockpicking, origami, glassblowing, etc"_)
+* Other Volunteering (_"with dogs? in nature? who cares"_)
+* Pack Supplies for the Food Depository (GCFD)
 * Paintball
 * Picnic / Potluck (_"daytime is easier to avoid booze"_)
 * Pilsen Walking Tour
@@ -82,16 +87,15 @@ Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adib, Ashton T
 * Scavenger Hunt (_"especially a City History one"_)
 * Segway Tour
 * Share Foods from Each Members' Culture
-* Sports Game (_"Baseball, Basketball, etc"_) (_ed: Maybe the Cubs will win this year?_)
+* Sports Game (_"Baseball, Basketball, etc"_)
 * Storytelling (_"2nd Story, the Moth, etc"_)
 * Summer Dance
 * Team Cooking Class
 * Team Lunch, Instead of Dinner
-* Theatre
+* Theatre (or Theater)
 * Ultimate Frisbee
 * Urban Gardening
 * Video Games (_"League of Legends!"_)
-* Volunteering (_"with dogs? in nature? who cares"_)
 * Walking Competition
 * Yoga
 * Zoo
