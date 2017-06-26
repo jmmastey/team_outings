@@ -56,6 +56,7 @@ Thank you, Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adi
 * Improv Class
 * Indoor Skydiving (_"heck, outdoor skydiving"_)
 * Instructables
+* Karaoke
 * Kayaking / Paddleboarding
 * Lunch in the Park
 * Learn to Play Ukulele Together
