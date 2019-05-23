@@ -16,6 +16,7 @@ Thank you, Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adi
 * 3D Printing Hackathon
 * Apple Picking
 * Aquarium
+* Achitectural Boat Tour (_or Water Taxi if you want to self-narrate_)
 * Archery Tag (_"no seriously, it's like the Hunger Games"_)
 * Arcade (_"Dave & Busters? Emporium has lots of drinking."_)
 * Bake Together (Cupcakes!)
