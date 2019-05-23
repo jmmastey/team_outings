@@ -18,17 +18,20 @@ Thank you, Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adi
 * Aquarium
 * Archery Tag (_"no seriously, it's like the Hunger Games"_)
 * Arcade (_"Dave & Busters? Emporium has lots of drinking."_)
+* Bags a.k.a. cornhole
 * Bake Together (Cupcakes!)
 * BBQ
 * Backstage at the Opera (_"we called them directly"_)
 * Beach Bonfire
 * Bike Tour of the City
 * Board Games / Social Card Games
-* Book Club
+* Boat Tour / Sunset Cruise
+* Book Club or Reading Group (i.e. read industry-related papers and discuss)
 * Botanic Gardens
 * Bowling
 * Boxing
 * Bubble Soccer
+* Carnival with games, booths, and prizes
 * Cat Cafe
 * CSO Concert at Millenium Park (_summer only_)
 * Chicago Architecture Tour
@@ -75,6 +78,7 @@ Thank you, Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adi
 * Other Volunteering (_"with dogs? in nature? who cares"_)
 * Pack Supplies for the Food Depository (GCFD)
 * Paintball
+* Party games like Mafia, charades, telephone Pictionary, etc.
 * Picnic / Potluck (_"daytime is easier to avoid booze"_)
 * Pilsen Walking Tour
 * Pokemon Go
