@@ -66,7 +66,8 @@ Thank you, Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adi
 * Mob Tour Bus / Ghost Tour Bus
 * Movie Opening
 * Mural Painting
-* Museum (_Is there something at the MSI that is team-y?_)
+* Museum
+  * Museums often have group discounts ([like this at the MSI](https://www.msichicago.org/visit/groups-and-field-trips/)) and also pre-planned lead-yourself tours. If you're familiar with a local one you could make your own "Museum Scavenger Hunt".
 * Mystery Theatre
 * Mystery League / Puzzle Solving Adventure
 * Obstacle Course
