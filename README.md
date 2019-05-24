@@ -18,6 +18,7 @@ Thank you, Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adi
 * Aquarium
 * Archery Tag (_"no seriously, it's like the Hunger Games"_)
 * Arcade (_"Dave & Busters? Emporium has lots of drinking."_)
+* Axe Throwing (Available in many major cities now)
 * Bake Together (Cupcakes!)
 * BBQ
 * Backstage at the Opera (_"we called them directly"_)
