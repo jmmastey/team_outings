@@ -3,7 +3,7 @@ Part of this conversation: https://twitter.com/jmmastey/status/71450872763899904
 This list has some Chicago-centric references, but almost everything has an analogue in your city. For instance, if you're in New Zealand you can go on a _bush walk_, while we Midwesterners have to settle for a hike.
 
 ### This List Possible Thanks To A Million Folks
-Thank you, Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adib, Ashton Thomas, Matt Campbell, Dave Mastey, Barrett Clark, Tute Costa, Dominik Wilkowski, GA like the state, Angie Meeker, Eric Normand, Isaac Sanders, Michael Robinson, North of Normal, Rachael Hodder, Aparna Pandey, Jenni Hartman, Colleen Stock, Jung Ha Lim, Jennifer Um, Franka, Josh Liebowitz, Sarah Allen, Dominic Baggott, Melinda Minch, Dave Mayo, Andy Carle, Matt Kremer, Ariel Caplan, Emily P, Jeff Madsen, Dave Bock, Jason Staten, Jason Hobbs, Julie Lee, mathrobin, Ron Burk, Seth Roby, Mike Nolan, John Allsopp, Kylie Gusset, Tim Lucas, Adam Argo, Kenn Brodhagen, Lain Mastey, Lisa Szkatulski, Yitz Schaffer, Matt Gehrisch, Cheryl Gore Schaefer, rach, Aaron Gunderson, Neil P. Bardhan, John McClane, Jody Podbury, Duana Saskia Stanley, Forrest Alvarez, jtu, bgregmc, Denny Abraham, Lawrence Walters, Anjul, Maryam Labib, Kevin Cantù, antifuchs, Florian Gilcher, Julie David, Rob Thomas, Stephanie Hurlburt, and Gaby Ruiz-Funes
+Thank you, Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adib, Ashton Thomas, Matt Campbell, Dave Mastey, Barrett Clark, Tute Costa, Dominik Wilkowski, GA like the state, Angie Meeker, Eric Normand, Isaac Sanders, Michael Robinson, North of Normal, Rachael Hodder, Aparna Pandey, Jenni Hartman, Colleen Stock, Jung Ha Lim, Jennifer Um, Franka, Josh Liebowitz, Sarah Allen, Dominic Baggott, Melinda Minch, Dave Mayo, Andy Carle, Matt Kremer, Ariel Caplan, Emily P, Jeff Madsen, Dave Bock, Jason Staten, Jason Hobbs, Julie Lee, mathrobin, Ron Burk, Seth Roby, Mike Nolan, John Allsopp, Kylie Gusset, Tim Lucas, Adam Argo, Kenn Brodhagen, Lain Mastey, Lisa Szkatulski, Yitz Schaffer, Matt Gehrisch, Cheryl Gore Schaefer, rach, Aaron Gunderson, Neil P. Bardhan, John McClane, Jody Podbury, Duana Saskia Stanley, Forrest Alvarez, jtu, bgregmc, Denny Abraham, Lawrence Walters, Anjul, Maryam Labib, Kevin Cantù, antifuchs, Florian Gilcher, Julie David, Rob Thomas, Stephanie Hurlburt, Gaby Ruiz-Funes, Éamon Ryan, Avi Schwab and Noah Manion.
 
 ### Strategy
 1. Poll the group in advance and allow them to raise concerns.
@@ -18,6 +18,7 @@ Thank you, Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adi
 * Aquarium
 * Archery Tag (_"no seriously, it's like the Hunger Games"_)
 * Arcade (_"Dave & Busters? Emporium has lots of drinking."_)
+* Axe Throwing (Available in many major cities now)
 * Bags a.k.a. cornhole
 * Bake Together (Cupcakes!)
 * BBQ
@@ -25,8 +26,8 @@ Thank you, Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adi
 * Beach Bonfire
 * Bike Tour of the City
 * Board Games / Social Card Games
-* Boat Tour / Sunset Cruise
-* Book Club or Reading Group (i.e. read industry-related papers and discuss)
+* Boat Tour / Sunset Cruise (_or Water Taxi if you want to self-narrate_)
+* Book Club or Reading Group (_i.e. read industry-related papers and discuss_)
 * Botanic Gardens
 * Bowling
 * Boxing
@@ -69,7 +70,8 @@ Thank you, Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adi
 * Mob Tour Bus / Ghost Tour Bus
 * Movie Opening
 * Mural Painting
-* Museum (_Is there something at the MSI that is team-y?_)
+* Museum
+  * Museums often have group discounts ([like this at the MSI](https://www.msichicago.org/visit/groups-and-field-trips/)) and also pre-planned lead-yourself tours. If you're familiar with a local one you could make your own "Museum Scavenger Hunt".
 * Mystery Theatre
 * Mystery League / Puzzle Solving Adventure
 * Obstacle Course
@@ -78,7 +80,6 @@ Thank you, Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adi
 * Other Volunteering (_"with dogs? in nature? who cares"_)
 * Pack Supplies for the Food Depository (GCFD)
 * Paintball
-* Party games like Mafia, charades, telephone Pictionary, etc.
 * Picnic / Potluck (_"daytime is easier to avoid booze"_)
 * Pilsen Walking Tour
 * Pokemon Go
