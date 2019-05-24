@@ -16,21 +16,23 @@ Thank you, Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adi
 * 3D Printing Hackathon
 * Apple Picking
 * Aquarium
-* Achitectural Boat Tour (_or Water Taxi if you want to self-narrate_)
 * Archery Tag (_"no seriously, it's like the Hunger Games"_)
 * Arcade (_"Dave & Busters? Emporium has lots of drinking."_)
 * Axe Throwing (Available in many major cities now)
+* Bags a.k.a. cornhole
 * Bake Together (Cupcakes!)
 * BBQ
 * Backstage at the Opera (_"we called them directly"_)
 * Beach Bonfire
 * Bike Tour of the City
 * Board Games / Social Card Games
-* Book Club
+* Boat Tour / Sunset Cruise (_or Water Taxi if you want to self-narrate_)
+* Book Club or Reading Group (_i.e. read industry-related papers and discuss_)
 * Botanic Gardens
 * Bowling
 * Boxing
 * Bubble Soccer
+* Carnival with games, booths, and prizes
 * Cat Cafe
 * CSO Concert at Millenium Park (_summer only_)
 * Chicago Architecture Tour
