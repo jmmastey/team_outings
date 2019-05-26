@@ -1,4 +1,6 @@
-Part of this conversation: https://twitter.com/jmmastey/status/714508727638999040
+Part of this conversation: https://twitter.com/jmmastey/status/714508727638999040.
+
+View as a video: https://www.youtube.com/watch?v=C9lr5m40P5Q&feature=youtu.be&t=156
 
 This list has some Chicago-centric references, but almost everything has an analogue in your city. For instance, if you're in New Zealand you can go on a _bush walk_, while we Midwesterners have to settle for a hike.
 
