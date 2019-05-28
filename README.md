@@ -68,6 +68,7 @@ Thank you, Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adi
 * Lunch in the Park
 * Learn to Play Ukulele Together
 * Manicures (_this is less gendered than you'd think_)
+* Metalworking class
 * Mini-golf (_"or a Mini-golf tournament!"_)
 * Mob Tour Bus / Ghost Tour Bus
 * Movie Opening
