@@ -41,7 +41,7 @@ Thank you, Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adi
 * Chicago Athletic Club Game Room (Bacci Ball, Pool, etc)
 * Chicago Urban Race / Amazing Race
 * Chili Cook-Off
-* Clean up a Public Park / Beach Together 
+* Clean up a Public Park / Beach Together
 * Coffee / Tea Tasting
 * Comedy Club
 * Conservatory (_Garfield Park, Lincoln Park_)
