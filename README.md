@@ -5,7 +5,7 @@ View as a video: https://www.youtube.com/watch?v=C9lr5m40P5Q&feature=youtu.be&t=
 This list has some Chicago-centric references, but almost everything has an analogue in your city. For instance, if you're in New Zealand you can go on a _bush walk_, while we Midwesterners have to settle for a hike.
 
 ### This List Possible Thanks To A Million Folks
-Thank you, Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adib, Ashton Thomas, Matt Campbell, Dave Mastey, Barrett Clark, Tute Costa, Dominik Wilkowski, GA like the state, Angie Meeker, Eric Normand, Isaac Sanders, Michael Robinson, North of Normal, Rachael Hodder, Aparna Pandey, Jenni Hartman, Colleen Stock, Jung Ha Lim, Jennifer Um, Franka, Josh Liebowitz, Sarah Allen, Dominic Baggott, Melinda Minch, Dave Mayo, Andy Carle, Matt Kremer, Ariel Caplan, Emily P, Jeff Madsen, Dave Bock, Jason Staten, Jason Hobbs, Julie Lee, mathrobin, Ron Burk, Seth Roby, Mike Nolan, John Allsopp, Kylie Gusset, Tim Lucas, Adam Argo, Kenn Brodhagen, Lain Mastey, Lisa Szkatulski, Yitz Schaffer, Matt Gehrisch, Cheryl Gore Schaefer, rach, Aaron Gunderson, Neil P. Bardhan, John McClane, Jody Podbury, Duana Saskia Stanley, Forrest Alvarez, jtu, bgregmc, Denny Abraham, Lawrence Walters, Anjul, Maryam Labib, Kevin Cantù, antifuchs, Florian Gilcher, Julie David, Rob Thomas, Stephanie Hurlburt, Gaby Ruiz-Funes, Éamon Ryan, Avi Schwab, Noah Manion and Jeff Evans.
+Thank you, Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adib, Ashton Thomas, Matt Campbell, Dave Mastey, Barrett Clark, Tute Costa, Dominik Wilkowski, GA like the state, Angie Meeker, Eric Normand, Isaac Sanders, Michael Robinson, North of Normal, Rachael Hodder, Aparna Pandey, Jenni Hartman, Colleen Stock, Jung Ha Lim, Jennifer Um, Franka, Josh Liebowitz, Sarah Allen, Dominic Baggott, Melinda Minch, Dave Mayo, Andy Carle, Matt Kremer, Ariel Caplan, Emily P, Jeff Madsen, Dave Bock, Jason Staten, Jason Hobbs, Julie Lee, mathrobin, Ron Burk, Seth Roby, Mike Nolan, John Allsopp, Kylie Gusset, Tim Lucas, Adam Argo, Kenn Brodhagen, Lain Mastey, Lisa Szkatulski, Yitz Schaffer, Matt Gehrisch, Cheryl Gore Schaefer, rach, Aaron Gunderson, Neil P. Bardhan, John McClane, Jody Podbury, Duana Saskia Stanley, Forrest Alvarez, jtu, bgregmc, Denny Abraham, Lawrence Walters, Anjul, Maryam Labib, Kevin Cantù, antifuchs, Florian Gilcher, Julie David, Rob Thomas, Stephanie Hurlburt, Gaby Ruiz-Funes, Éamon Ryan, Avi Schwab, Noah Manion, Jeff Evans, and Isobel Redelmeier
 
 ### Strategy
 1. Poll the group in advance and allow them to raise concerns.
@@ -68,6 +68,7 @@ Thank you, Emily Heist Moss, Alison Stanton, Sarah Mei, Parul Schroff, Karim Adi
 * Lunch in the Park
 * Learn to Play Ukulele Together
 * Manicures (_this is less gendered than you'd think_)
+* Metalworking class
 * Mini-golf (_"or a Mini-golf tournament!"_)
 * Mob Tour Bus / Ghost Tour Bus
 * Movie Opening
